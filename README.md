@@ -1,8 +1,8 @@
 # Matthew Valentine
 
- `Digital Enthusiast (Developer/Creator/Fighter)`
+ `Digital Enthusiast (Developer)`
 
-I am Junior Developer, whom not too long ago didn't believe they could learn how to progarm, let alone do it by self teaching. I enjoy the theory of computing and along with the ability to code now, the feeling is very 'mad scientist' like. I plan to continue my education & dive deeper into the different paths of programming!!
+I'm just happy to be here. Hi 
 
 stay curious & don't forget to breathe! ✌🏼
 
